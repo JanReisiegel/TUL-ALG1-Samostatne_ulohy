@@ -1,0 +1,1 @@
+# TUL-ALG1-Samostatne_ulohy
